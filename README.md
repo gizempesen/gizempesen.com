@@ -1,1 +1,0 @@
-# gizempesen.com
